@@ -1,1 +1,0 @@
-This project is about the  reciepes  for some cooking items..
